@@ -1,0 +1,2 @@
+# mygenechronicle
+Open minded
